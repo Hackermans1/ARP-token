@@ -1,1 +1,1 @@
-Anti Rugu Pull Coin
+Anti RugPull Coin
